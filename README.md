@@ -6,3 +6,6 @@ duncanowen681@icloud.com
 aubriegoodwin1610jp@icloud.com
 marypmorris238th@icloud.com
 sofiablevins0310be@icloud.com
+roseshicks248us@icloud.com
+baileyparsons742@icloud.com
+sherlockprotract@icloud.com
