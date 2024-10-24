@@ -20,3 +20,6 @@ chrisshah897@icloud.com
 maryesmith2606au@icloud.com
 loganwoodward1109il@icloud.com
 davidvillarreal0934@icloud.com
+maryhpeters98us@icloud.com
+patriciamjohns3006nz@icloud.com
+johanpennington119jp@icloud.com
